@@ -1,0 +1,1 @@
+# code-philosophy-sample
